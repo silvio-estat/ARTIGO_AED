@@ -1,1 +1,1 @@
-# ARTIGO_EAD
+# ARTIGO_AED
